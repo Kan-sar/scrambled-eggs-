@@ -1,0 +1,1 @@
+this is a quick 5 min recipe to make scrambled eggs  while cost cutting and maintaining the flavour but at the end you can still tweak it to your liking because at the end cooking is not about perfection. 
